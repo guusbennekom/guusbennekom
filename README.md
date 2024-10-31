@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @guusbennekom.
+- 👀 I’m interested in gaming, making music and sleeping.
+- 🌱 I’m currently learning Python.
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach: me just call me or sumn.
+- 😄 Pronouns: He/Him.
+- ⚡ Fun fact: Yeah i'm Dutch.
